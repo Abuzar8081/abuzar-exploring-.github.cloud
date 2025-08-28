@@ -1,1 +1,1 @@
-# abuzar-exploring-.github.cloud
+# abuzar-exploring-github.cloud
